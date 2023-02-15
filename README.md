@@ -1,1 +1,1 @@
-# structed readyness
+# visual diagrams will be updated
