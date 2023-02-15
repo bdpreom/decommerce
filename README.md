@@ -1,0 +1,1 @@
+# structed readyness
